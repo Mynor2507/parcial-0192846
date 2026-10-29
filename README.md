@@ -1,0 +1,1 @@
+# Esta es la pagina base: https://www.figma.com/design/80OhoWEoeUJPMvWoFOt5Fj/Hydra-Landing-Page--Community-?node-id=0-1&p=f&t=Iy7TLvUSxKT3wlDi-0
